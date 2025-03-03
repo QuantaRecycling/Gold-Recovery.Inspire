@@ -6,6 +6,7 @@
 - [Karat GOLD in Aqua Regia No Inquartation](https://youtu.be/NR_VNWMd2kg)
 - [Gold Recovery from 14kg CPUs](https://youtu.be/XkVkBiugA58)
 - [117g BGA black tops - gold recovery](https://youtu.be/pIZozuC-lfU)
+- [HOW TO GET FREE GOLD FROM GOLD CORNER BGA IC CHIPS WITH SULPHURIC ACID / WET ASHING FULL PROCESS](https://youtu.be/ZYski_OBj-M)
 
 # channel: Picky Plans
 - [Smelting Telecommunication PCBs for gold | 15 kg PCBs](https://youtu.be/5rkLOnvWacw)
