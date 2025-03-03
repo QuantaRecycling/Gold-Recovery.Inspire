@@ -7,6 +7,8 @@
 - [Gold Recovery from 14kg CPUs](https://youtu.be/XkVkBiugA58)
 - [117g BGA black tops - gold recovery](https://youtu.be/pIZozuC-lfU)
 - [HOW TO GET FREE GOLD FROM GOLD CORNER BGA IC CHIPS WITH SULPHURIC ACID / WET ASHING FULL PROCESS](https://youtu.be/ZYski_OBj-M)
+- [29.59g Gold from relays RES 9 & RES 22](https://youtu.be/qUH_VP2IMNE)
+- [GOLD fingers yield test: 6g Au from 1 kg fingers](https://youtu.be/-0Pea4A1ij0)
 
 # channel: Picky Plans
 - [Smelting Telecommunication PCBs for gold | 15 kg PCBs](https://youtu.be/5rkLOnvWacw)
