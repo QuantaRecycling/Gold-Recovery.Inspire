@@ -14,3 +14,7 @@
 - [Smelting Telecommunication PCBs for gold | 15 kg PCBs](https://youtu.be/5rkLOnvWacw)
 - [Smelting Tiny BGA IC chips for gold |Cell phone chips gold recovery](https://youtu.be/K-ENzVW5YTs)
 - [Gold recovery from Tiny BGA chip | Bluetooth modules gold recovery | Smelting Cell phone BGA chips](https://youtu.be/SNJEGlQ_ilk)
+
+# feedstock: BGA Chips
+## Favorite:
+- [24k Gold Wire Bonding | Panning Method BGA Chips | Without Acid Gold Recovery READY](https://youtu.be/xO1s2ISY3FU)
